@@ -7,7 +7,6 @@
 
 - 📫 저의 이메일입니다. **gustjd3834@naver.com, gustjd9610@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
